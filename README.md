@@ -9,5 +9,5 @@ To create a platform that is loved by 10,000 satisfied customers and the communi
 
 # Contact Us
 Instagram:@robocapai
-https://28f6b6b2-9738-4883-8ead-d5d6a48089cd-00-carwk3e3s9q2.worf.replit.dev/kayit
+https://global-stock-tracker--robocapresmi.replit.app
 # Thanks
